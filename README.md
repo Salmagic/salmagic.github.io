@@ -1,0 +1,1 @@
+# salmagic.github.io
